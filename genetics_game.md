@@ -1,4 +1,14 @@
-Are there any games where you're a blind replicator, and you can choose a strategy for how to replicate?  You could only play blind and not see the effects, but you could see whether you're successful. 
+Purpose
+===
+Are there any games where you experience natural selection?  You're a replicator, blind, without motives, just a tendency towards more offspring and a longer life.  
+
+You can't see what others are doing, or feel their impact.  You could know whether you're still alive. 
+
+
+Let a person experience the true randomness of natural selection.  (I'm on a evolutionary psychology kick.)
+
+
+
 
 
 It would include random mutation. 
